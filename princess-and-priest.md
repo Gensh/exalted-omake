@@ -176,4 +176,4 @@ Lillun swept the air to show she was brushing aside the matter.
 
 "Not to be ungrateful, but isn't using the Bridge always a risk? It's not like the time with Number Fifty."
 
-"It is, though. It's about what all of this means. It's about empathizing with mad titans but still holding them to their crimes. It's about identifying _what light is_. A lot of people are going to try to use Trish sooner or later. I will ensure, come Malfeas or Kimbery, that she does not become what I am. I want to make sure she knows that no matter what, someone _will_ come when she calls."
+"It is, though. It's about what all of this means. It's about empathizing with mad titans but still holding them to their crimes. It's about identifying _what light is_. A lot of people are going to try to use Trish sooner or later. I will ensure that she does not become what I am. I want to make sure she knows that no matter what, someone _will_ come when she calls."
