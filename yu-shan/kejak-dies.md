@@ -1,6 +1,6 @@
 # Kejak Dies
 
-## Kejak Prepares to Die
+## Kejak Cries
 
 Each Fate-Chosen had a preordained time to die. Certainly, they sometimes died early. The light of less orderly heroes could obscure Fate's vision, and the various creatures beyond the world could sometimes sneak quite far inland before the ripples were noticed. They could easily slay a Seer and unravel a plan centuries in the making. But the point was, those Seers _were still dying_.
 
@@ -96,4 +96,21 @@ A body bobbed to the surface next, garbed in some shimmering black robe. Still m
 
 Time flowed backward, and a gleaming golden blade attached the fallen head. The blood pouring from the twenty-two-and-one wounds turned to bindings. At last, the young woman seemed to animate. She fumbled in the pool of her own freezing blood for her lost eye before slipping it into the empty slot. The royal wings of a Monarch burst from her back, one of rain and one of snow.
 
-The Queen of Heaven was dead, but the echo of her corpus had returned in glory.
+The Queen of Heaven was dead, but the echo of Her corpus had returned in glory.
+
+## Kejak Lies
+
+The ancient dead thing hovered where Kejak's confidant had only a moment earlier, and he flinched. Such a powerful and wise divinity was merely an organ to the Queen of Heaven, and this was only a tattered remnant of Her. This lesser evil smiled and fluttered a fan of slate and chalk coquettishly.
+
+"Oh, Kejak, daaarling! I had thought you might never call upon me again. I see it's time."
+
+She smiled even wider as she picked at the wound of Nara-O's sacrifice.
+
+"So you want to know about your next incarnation. You want to know who it is and what caretakers you can influence. Ordinarily, this process would have begun ages ago, but your Exaltation seems to just _vanish_ at your death. It can't be destroyed, of course, but it falls out of Fate and into my lovely little grey area. So you, o staunchest defender of Creation, turn to the aid of the greatest being your people have ever slain. How poetic. Well, no. Honestly, it's a little boring. But what comes later– that makes for a better overall story."
+
+Kejak steeled himself for the discussion to come. The eldest of demons were quite like their farcical cousins the fae. Yet the dead things of the void longed for the great The End. Attempting to treat with them the same way often led to tragic stories manifested upon reality.
+
+## Kejak Spies
+
+## Kejak Ties
+
