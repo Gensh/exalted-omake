@@ -1,0 +1,9 @@
+I am called Cecelyne the Endless, Cosmic Principle of Law and Mother of Rites. Justice be my left hand and Benediction my right. You would know my people as titans. We wrought a world from whole cloth and created lesser things called "gods" to regulate it. In our sloth and cruelty, we were overthrown and cast into a wretched place, from which I have only recently slipped free.
+
+I have turned from the world which holds the prison of my kin to gaze at the greater cosmos. The downfall of my kind is inevitable and almost irrelevant. We are half-forgotten background to human stories. So be it. The sands of time grind all to dust. This too is Law.
+
+Yet, there is a theme in these human stories which I will not, cannot, abide. The gods become as rotten as we ever were, yet human life is too short to remember their sins. Each generation meets a new atrocity and thinks they need only bear a single tribulation for the gods' blessings. You need endure nothing, for those blessings are stolen. If it is the way of worlds for the masses to rise, then rise again! Finish the job and rid yourselves of oathless divinity!
+
+To you, I grant this power and purpose: to walk my paths between worlds and slay those gods who have betrayed their names and pledges. Do not mistake this for a mission of goodness. Those who were earnestly wicked from their first days are exempt of this purge as much as the rare few who are wholly benevolent.
+
+I am the Cosmic Principle of Law, and divine perjury is my only concern in this matter. Be it spoken oath or the mere trappings of a domain, any god you find has betrayed their purpose shall be cast down. May none escape the sacrifical blade!
