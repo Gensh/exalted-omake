@@ -30,7 +30,7 @@ No, it was among our lesser kin that I would be forced to walk.
 
 To take Isidoros by the tusks as he wallowed in muck and grime, and cast him away from that which he would crush underfoot.
 
-To stand before Wyld-stained Adrian and bear her blades as living shield for some precious thing too near Creation's edge.
+To stand before Wyld-stained Adrian and bear his blades as living shield for some precious thing too near Creation's edge.
 
 To listen to wretched Autochthon's repeated pleas to save his chosen mortals, who settled only in places which stank of our disdain.
 
