@@ -1,4 +1,4 @@
-# NRM Outline
+# Bright Eyes Outline
 
 ## Helcaraxë
 
