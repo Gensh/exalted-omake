@@ -1,0 +1,9 @@
+Omniscience. As a matter of practicality, such is impossible outside the madness of the Wyld. Knowing what oneself knows when one already knows everything would produce a feedback loop, destroying the mind of any creature less stout than the Dragon Beyond the World. There was a need for such power, however, so an alternative was developed.
+
+Psychohistory. Given a known state of intelligent actors, one may with reasonable margin of error predict their future behavior. For the Chaos Without, such was the source of his infallible might. As his sister Law and their daughter Order choked the freedom of the boundless titans, they became ever-more predictable and so more easily bested at even their own sport.
+
+The fatal flaw of such a power is easily seen. It can account for intelligent beings and the half- intelligent beings they shape and mold, but it cannot account for new intelligences entering the system. It cannot account for powers unseen and unimagined. And so it did not protect the Empyreal Chaos when the ignorant humans rose up with grand powers bestowed upon them by malfunctioning gods and a renegade driven mad by fever.
+
+The battle raged until even the proud Prismatic Prince feared all Creation would be lost. Yet onward, to death or glory, the Queen demanded. Omniscience, flawed or not, makes for a dull life. The Queen, who had never made a false move in the Games of Divinity, lost time and time again to the Exalted. Addicted to the thrill of consequence hitherto denied her, she would not stop until all was ruin.
+
+Yet the Exalted had broken her known state. Even the actions of her own had been lost to her analysis. The impetuous Prince then sought out his match in combat and led the humans to her. The red of sunset is the bloody guillotine that fell upon the Spirit Queen. Yet even in death, she laughed, for it was a grand mystery she would never have experienced otherwise.
